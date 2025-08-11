@@ -1,1 +1,0 @@
-# project-showcase-public
